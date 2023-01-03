@@ -1,6 +1,5 @@
-## 我是 **yulj**
-
-- 📮 yuliangji6@gmail.com
+## 👋 Hi, I’m yulj
+- 📮 Email is yuliangji6@gmail.com
 
 ## 今年汇总 ✨
 
